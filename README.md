@@ -1,7 +1,7 @@
 - My name is Nin, I am 22, Goth, Autistic, System.
-- Really bad at keeping up with messages. this isnt a personal thing at all.
-- i <3 disappearing at will.
-- My interests are industrial, goth, visual kei, silent hill, resident evil, metal gear, death note, hellsing, gravity falls, and cosplay.
+-i want to talk to more people! if you have similar interests, feel free to try to befriend me!
+- Really bad at keeping up with messages. this isnt a personal thing at all. i just disappear into the shadows sometimes, ykhis
+- My interests are 🤍industrial, goth, visual kei, 🤍old tech/2000s culture, silent hill, resident evil, metal gear, death note, hellsing, 🤍gravity falls, and cosplay.
 - for more information look at my spacehey. 
 - DNI: minors, people who are weird to children, and zionists.
   
