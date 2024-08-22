@@ -1,4 +1,4 @@
-- My name is Alistair, I am 22, system, autistic
+- , I am 22, system, autistic
 
 -i want to talk to more people! if you have similar interests, feel free to try to befriend me!
 - Really bad at keeping up with messages. this isnt a personal thing at all. i just disappear into the shadows sometimes, ykhis
