@@ -1,7 +1,8 @@
 - , I am 22, system, autistic
 
 -i want to talk to more people! if you have similar interests, feel free to try to befriend me!
-- Really bad at keeping up with messages. this isnt a personal thing at all. i just disappear into the shadows sometimes, ykhis
+-i am really bad at reading people/situations and can sometimes say things that are rude without meaning to, if you have an issue with me, please talk to me! its very likely theres a misunderstanding!
+
 - My interests are 🤍industrial, goth, visual kei, 🤍old tech/2000s culture, silent hill, resident evil, metal gear, death note, hellsing, 🤍gravity falls, and cosplay.
 - for more information look at my spacehey. 
 - DNI: minors, people who are weird to children, and zionists.
