@@ -4,11 +4,12 @@
 
 
 
-- My interests are 🤍industrial, goth, visual kei, 🤍old tech/2000s culture, silent hill, resident evil, 🤍metal gear, death note, hellsing, 🤍gravity falls, and cosplay.
+- My interests are 🤍industrial, goth, 🤍old tech and machinery, early 2000 aesthetics and gaming, silent hill, resident evil, 🤍metal gear, death note, hellsing, 🤍gravity falls, and cosplay.
 - for more information look at my spacehey. 
 - DNI: minors, people who are weird to children, and zionists.
   
 -BYI: i am really bad at reading people/situations and can sometimes say things that are rude without meaning to, if you have an issue with me, please talk to me! its very likely theres a misunderstanding!
+-I also am very bad at replying to dms and such, so please be patient! nothing personal
 
 <!---
 industrialgoth/industrialgoth is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
