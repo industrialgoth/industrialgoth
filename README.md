@@ -4,7 +4,7 @@
 
 
 
-- My interests are 🤍industrial, goth, 🤍old tech and machinery, early 2000 aesthetics and gaming, silent hill, resident evil, 🤍metal gear, death note, hellsing, 🤍gravity falls, and cosplay.
+- My interests are 🤍industrial, goth, 🤍old tech and machinery, urban exploration, early 2000 aesthetics and gaming, silent hill, resident evil, 🤍metal gear, death note, hellsing, 🤍gravity falls, and cosplay.
 - for more information look at my spacehey. 
 - DNI: minors, people who are weird to children, and zionists.
   
