@@ -1,4 +1,4 @@
-- , I am 22, system, autistic, mlm, cosplayer
+- , I am 22, system, autistic, mlm, 
 
 - i want to talk to more people! if you have similar interests, feel free to try to befriend me!
 
