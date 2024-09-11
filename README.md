@@ -6,7 +6,7 @@
 
 - My interests are 🤍industrial, goth, 🤍old tech, urban exploration, early 2000 aesthetics and gaming, silent hill, resident evil, 🤍metal gear, death note, hellsing, and cosplay.
 - for more information look at my spacehey. 
-- DNI: minors, people who are weird to children, incest shippers/likers, and zionists.
+- DNI: minors, people who are weird to children, and zionists.
   
 - BYI: i am really bad at reading people/situations  if you have an issue with me, please talk to me! 
 
